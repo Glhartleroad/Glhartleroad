@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...Gaming Projects 
 - 📫 How to reach me ... 
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... I like to <smile>
+- ⚡ Fun fact: ... I like to... SmIlE
 
 <!---
 Glhartleroad/Glhartleroad is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
